@@ -19,4 +19,4 @@ Evrim Bilgen
 
 Jabir Kangarli
 
-Yenish 
+Yenish Nurmuhammedov
